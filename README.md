@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on front end developer
 - 📫 How to reach me on Email : "businessmr.rabadi@gmail.com"
 
-- This design only for education perpose do not use on public website without my permission
+- 🐼 This design only for education perpose do not use on public website without my permission
 
 - ------------------------------------Thank You------------------------------------
